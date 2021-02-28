@@ -10,4 +10,6 @@ Email: (Japanese/English) [dannychen46@yahoo.co.jp](mailto:dannychen46@yahoo.co.
 
 Twitter: [@YakusokuEgg](http://twitter.com/YakusokuEgg)
 
+Line: [ID: kang0046](http://dch46.github.io/about)
+
 Weibo: [@和大家一起跳高高](http://weibo.com/katoshilove) or [weibo.com/katoshilove](http://weibo.com/katoshilove)
