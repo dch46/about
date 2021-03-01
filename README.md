@@ -6,7 +6,7 @@ FOR KATOSHI & KAWADA & THE WHOLE HINATAZAKA46
 
 Political Standpoint: Democratic socialism
 
-Email: (Japanese/English) [dannychen46@yahoo.co.jp](mailto:dannychen46@yahoo.co.jp)  (Chinese) [dannychen0046@outlook.com](mailto:dannychen0046@outlook.com)
+Email: 🇯🇵or🇺🇲: [dannychen46@yahoo.co.jp](mailto:dannychen46@yahoo.co.jp)  🇨🇳🇹🇼: [dannychen0046@outlook.com](mailto:dannychen0046@outlook.com)
 
 Twitter: [@YakusokuEgg](http://twitter.com/YakusokuEgg)
 
